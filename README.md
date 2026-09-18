@@ -1,0 +1,1 @@
+# Pemrograman_SamuelGiopalSinamo_Copper_TLS26
